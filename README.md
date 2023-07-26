@@ -1,1 +1,1 @@
-Hi.  Not much informaation as for now. Will be updating later!
+Hi.  Not much information as for now. Will be updating later!
